@@ -46,8 +46,8 @@
 
 ## 🔗 Connect With Me
 
-* 💼 LinkedIn: (Add your link)
-* 🌐 Portfolio: (Add your link)
+* 💼 LinkedIn: (https://www.linkedin.com/in/shivani-kumari-45bb94331?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+* 🌐 Portfolio: (https://incredible-basbousa-51eb0e.netlify.app/)
 
 ---
 
